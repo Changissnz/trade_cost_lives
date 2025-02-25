@@ -20,7 +20,7 @@ Search Engine Quote: Feb 18, 2025 · Faced with existential threats from the rig
 
 Title: Democrats are having a unity problem. That's familiar territory for them  
 Link: https://www.npr.org/2021/10/10/1044019366/democrats-are-having-a-unity-problem-thats-familiar-territory-for-them  
-Search Engine Quote: It has often been easier to understand the Democratic Party as a series of shifting coalitions rather than a cohesive, disciplined unit. That long-term tolerance for turmoil may even help to explain ho…
+Search Engine Quote: Oct 10, 2021 · It has often been easier to understand the Democratic Party as a series of shifting coalitions rather than a cohesive, disciplined unit. That long-term tolerance for turmoil may even help to explain ho…
 
 Title: The Democrats’ Privileged College-Kid Problem  
 Link: https://www.politico.com/news/magazine/2021/10/09/david-shor-democrats-privileged-college-kid-problem-514992  
